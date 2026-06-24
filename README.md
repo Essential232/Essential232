@@ -1,4 +1,4 @@
-# Hi there, I'm Samuel (Solomon Agyabeng Jr.) 👋
+# Hi there, I'm Solomon Agyabeng Jr. 👋
 
 ### 🚀 IT Student & Emerging Software Engineer | 🎬 Digital Content Creator
 
